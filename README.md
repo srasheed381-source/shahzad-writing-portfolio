@@ -10,4 +10,4 @@ If you're building a product or a brand and need words that work, say hi!
 
 ## Connect with me
 
-- LinkedIn: YOUR-LINKEDIN-LINK-HERE
+https://www.linkedin.com/in/shahzad-rasheed-b50a63357
